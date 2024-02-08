@@ -29,7 +29,7 @@ tool working %100
 
 if you want to b/uy it contact me on telegram
 
-https://t.me/abrzi505
+https://t.me/rootabrzi
 
 or my instagram
 
